@@ -1,4 +1,4 @@
- 👋 Hi, I’m @raghadtaha19
+ 👋 Hi, I’m raghad taha
 - 👀 I’m interested in coding 
 - 🌱 I’m currently learning coding with orange academy
 - 💞️ I am looking forward to cooperating with developers to gain a good amount of knowledge and experience
